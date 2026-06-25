@@ -1,16 +1,13 @@
-## Hi there 👋
+# Better Triphop Rattanajaratrod
 
-<!--
-**bettertriphopjaratrod/BetterTriphopJaratrod** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Better Triphop Rattanajaratrod is a contemporary Thai artist and the creator of a unique artistic concept known as "Better Multiverse Realism" a personal art style that blends realism, fantasy, emotion and cultural essence across multiple dimensions
 
-Here are some ideas to get you started:
+Rather than following trends, his work focuses on building a distinctive artistic identity Each piece represents not just an image, but an entire universe shaped by imagination, experience and inner emotion
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+⚜️ [Portfolio](https://bettertriphopjaratrod.myportfolio.com/)
+⚜️ [Facebook](https://www.facebook.com/BetterTriphopJaratrod)
+⚜️ [Instagram](https://www.instagram.com/bettertriphopjaratrod/)
+⚜️ [Flickr](https://www.flickr.com/people/204400184@N08/)
+⚜️ DeviantArt
+⚜️ Pixiv
+⚜️ Pinterest
