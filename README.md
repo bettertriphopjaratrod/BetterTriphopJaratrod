@@ -8,6 +8,15 @@ Rather than following trends, his work focuses on building a distinctive artisti
 ⚜️ [Facebook](https://www.facebook.com/BetterTriphopJaratrod)
 ⚜️ [Instagram](https://www.instagram.com/bettertriphopjaratrod/)
 ⚜️ [Flickr](https://www.flickr.com/people/204400184@N08/)
-⚜️ DeviantArt
-⚜️ Pixiv
-⚜️ Pinterest
+⚜️ [Pinterest](https://www.pinterest.com/BetterTriphopJaratrod/)
+⚜️ [Tumblr](https://www.tumblr.com/bettertriphopjaratrod)
+⚜️ [DeviantArt](https://www.deviantart.com/bettertriphopbmr)
+⚜️ [Behance](https://www.behance.net/betterrattana)
+⚜️ [Pixiv](https://www.pixiv.net/users/126394023)
+⚜️ [ArtStation](https://www.artstation.com/bettertriphoprattanajaratrod)
+⚜️ [LinkedIn](https://www.linkedin.com/in/bettertriphopjaratrod/)
+⚜️ [Cara](https://cara.app/bettertriphopbmr)
+⚜️ [500px](https://500px.com/p/bettertriphopjaratrod)
+⚜️ [Medium](https://medium.com/@BetterTriphopJaratrod)
+⚜️ [X](https://x.com/BetterTriphopJD)
+⚜️ [Saatchi Art](https://www.saatchiart.com/bettertriphopjaratrod)
